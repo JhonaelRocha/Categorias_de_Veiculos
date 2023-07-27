@@ -1,1 +1,1 @@
-# 🚗:  :bus:  :articulated_lorry:
+# 🚗  :bus:  :articulated_lorry:
